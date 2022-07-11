@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mutsacc, or Mutsa Chinyamakobvu if you really want to look me up.
+- 👋 Hi, I’m @mutsacc, or Mutsa Carole Chinyamakobvu if you really want to look me up.
 - 👀 I’m interested in Evaluation practices and any intersections with (Stats/Data) Education.
 - 🌱 I’m currently trying out HCD in my engagements, you'll see more from me about how well/not they went. 
 - 💞️ I’m looking to collaborate with anyone who thinks we could vibe.
